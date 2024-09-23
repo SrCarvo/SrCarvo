@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Nintendo
 - 📫 How to reach me: No.
 - 😄 Pronouns: Omnipotent
-- ⚡ Fun fact: Pirates were gay (nothing bad about it)
+- ⚡ Fun fact: Pirates were gay (nothing bad about it tbh)
 
 <!---
 SrCarvo/SrCarvo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
